@@ -12,7 +12,7 @@ Welcome to **Wise Vision**, an innovative solution designed to assist visually i
 
 ## 📊 Public Opinion
 
-#### 1500+ students from 4️⃣ colleges and people surveyed across the city.
+#### 50+ people surveyed across the city.
 
 ---
 
